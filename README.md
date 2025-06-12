@@ -1,1 +1,1 @@
-# Voces de un mundo en agonia 
+# Voces del planeta enfermo
